@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate with guys with clear mindset en strive for excellence 
 - 📫 How to reach me emperor mesh on Facebook,+254798468520 WhatsApp 
-- 😄 Pronouns: ...
+- 😄 Pronouns:he/him
 - ⚡ Fun fact:i like computers more than people 
 
 <!---
